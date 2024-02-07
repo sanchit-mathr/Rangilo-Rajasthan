@@ -28,3 +28,11 @@ Savor the flavors of Rajasthan with a culinary exploration. From the spicy Laal 
 
 Discover the skilled craftsmanship of Rajasthan's artisans, showcasing traditional handicrafts such as Leheriya and Bandhej tie-dye fabrics, Kathputli puppetry, and intricate metalwork.
 
+![image](https://github.com/sanchit-mathr/Rangilo-Rajasthan/assets/99555073/1d194601-df3c-4791-b4ac-fbeeeddc3bfa)
+
+
+
+![image](https://github.com/sanchit-mathr/Rangilo-Rajasthan/assets/99555073/e7c3619f-de6a-4d49-92ed-d969ab5df2ac)
+
+
+
